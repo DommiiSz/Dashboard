@@ -1,1 +1,1 @@
-Thland Dashboard
+Thailand Dashboard
